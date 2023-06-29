@@ -5,4 +5,4 @@
 BitKub is a Thailand-based crytpocurrency exchange which was founded in 2018. BitKub's competitors are zipmex, gate, opensea and Binance.
 BitKub also has its own cryptocurrency. The strengths of this 
 
-![bitkub](image-260nw-2210214825.jpg)
+![https://www.cryptonewsz.com/bitkub-baggs-funding-of-1-67m-in-pre-series-a-round/]
